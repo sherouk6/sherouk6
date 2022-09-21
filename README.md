@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sherouk6
-- 👀 I’m interested in Design, Data.
-- 🌱 I’m currently learning IS.
-- 💞️ I’m looking to collaborate on a projects.
+- 👀 I’m interested in Data Analysis and design.
+- 🌱 I’m currently learning Information systems.
+- 💞️ I’m looking to improve my skills, have more experience and collaborate on a projects.
 - 📫 How to reach me E-mail: sherouk.mo6@gmail.com PhoneNumber: 0559917930
 
 <!---
