@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sherouk6
 - 👀 I’m interested in Data Analysis and AI.
-- 🌱 I’m currently learning Information Systems at PSAU.
+- 🌱 I’m currently Presales Consultant.
 - 💞️ I’m looking to improve my skills, have more experience and collaborate on a projects.
 - 📫 How to reach me E-mail: sherouk.mo6@gmail.com PhoneNumber: 0559917930
 
